@@ -1,3 +1,3 @@
 # kondiprojekt
- Üdvözlöm 
+ Üdvözlöm 0lasz
  én is
